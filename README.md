@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jianyestudy
+- 👀 mail: jianyestudy@gmail.com
+- 🌱 QQ: 1226642
+- 🌱 wechat: kkokkokkos
